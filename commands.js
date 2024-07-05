@@ -10,7 +10,7 @@ client.on('messageCreate', async message => {
 
     if (message.content.startsWith('!ban')) {
         if (!message.member.permissions.has('BAN_MEMBERS')) {
-            return message.reply('You do not have permission to ban members.');
+            return message.reply('Its non of your business.');
         }
 
         const user = message.mentions.users.first();
