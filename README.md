@@ -6,4 +6,4 @@ From that day i was kind of changed. cuz yk that. soo well. one day for the firs
 Chapter - 2:(Interlude): The Breakdown starts
 "Mahim was not a boy, not a kid, not a friend, HE WAS A FUCKING BROTHER OF MINE. When people hated me he was standing beside me.When i felt alone, he sat beside me , he kept silent but is was - it was really a lot A LOT for Me . When i had 10 tk i used to eat 5 i gave bro 5. another time bro bring 100 tk i took 50 bro spended 50 (equally).Not gonna lie i also did the same...... I loved him. My brother the man i used to call "Mahim" .
 Chapter - 2:(Continues): Encounter
-.......I wasn't that interested in girls of even human beings. Life for no reason she killed me---------
+.......I wasn't that interested in girls or even human beings. Like for no reason she killed me---------
