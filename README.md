@@ -10,4 +10,6 @@ Chapter - 2:(Interlude2): The Breakdown starts
 Chapter - 2:(Continues): Encounter
 .......I wasn't that interested in girls or even human beings. Like for no reason she was diffrent.For the firt time> FOR THE FIRST TIME SHE HELD MY HAND AND PULLED ME OUT OF THE DARKNESS...she made my fall for her....i fell deep inside her.She locked my eyes on her....And here all Started """The End Of Beginning"""
 Chapter - 3: Those Feelings
-From the day Tanjuu confessed to me. Until now i'm falling. Deeper and deeper, every day, she was the first one i loved Truly, and ik she did the same, we're two lover who was tring to create a bond and connection. And we made it. I love Her and she does the same 
+From the day Tanjuu confessed to me. Until now i'm falling. Deeper and deeper, every day, she was the first one i loved Truly, and ik she did the same, we're two lover who was tring to create a bond and connection. And we made it. I love Her and she does the same. And AJJ EI DINE AISHA O AMI ORE SHEI AGER MOTO  E LOVE KORI !!!!!
+Chapter - 4:Orpa
+akdin kono ek place theke orpa aisha amar life e pore. erpor theke akta akta din kore. ami realize korlam ami jei amount e Cursed. Orpa was just like me. Like every way te or sathe amar milto. Like unbelievable bhabe. And just like that we both fall in love. Orpa made me feel those feelings i never felt before. i kind of wanted them. i was shocked to be honest and from that day aj amra e porjonto. She love me over everything and i also do that. I want to marry her
